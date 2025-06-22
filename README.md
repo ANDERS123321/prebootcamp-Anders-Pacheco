@@ -1,1 +1,1 @@
-# prebootcamp-Anders-Pacheco
+Buenas tardes, mi nombre es Anders Gabriel Pacheco Dominguez, estoy por entrar al cuarto ciclo de la carrera de Desarrollo de Software, a lo largo de este tiempo de aprendizaje profesional eh estado adquiriendo todo el conociento que pueda para poder desarrollarme adecuadamente en mi campo profesional, personalmente considero que actualmente estoy en un nivel basico de conocimiento, pero tengo todas las ganas de aprender y ezforzarme para poder contribuir a la empresa en todo lo que sea necesario.
